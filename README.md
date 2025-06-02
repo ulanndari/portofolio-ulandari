@@ -1,5 +1,4 @@
 # portofolio-ulandari
----
 ##### Hello, I'm Ulandari👋
 I graduated with a Bachelor's degree in Management from Muhammadiyah University of Jambi.
 ---
