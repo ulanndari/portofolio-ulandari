@@ -32,5 +32,5 @@ Saya percaya bahwa pendidikan dan semangat belajar tidak berhenti setelah lulus 
 
 
 ##### kalau mau lihat cv saya, anda bisa mengakses di sini:
-![CV](https://github.com/ulanndari/portofolio-ulandari/blob/main/CV-pdf/cv%20ulandari.pdf?raw=true)
+[CV](https://github.com/ulanndari/portofolio-ulandari/blob/main/CV-pdf/cv%20ulandari.pdf?raw=true)
 terimakasih
