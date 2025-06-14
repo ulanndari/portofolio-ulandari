@@ -31,6 +31,6 @@ Dasar-dasar Bahasa Jerman (A1) – dalam proses pembelajaran
 Saya percaya bahwa pendidikan dan semangat belajar tidak berhenti setelah lulus kuliah. Dunia terus berkembang, dan saya ingin menjadi bagian dari perubahan itu, baik sebagai pembelajar maupun penggerak. Saya membawa semangat, komitmen, dan keyakinan kuat bahwa usaha yang sungguh-sungguh tidak akan mengkhianati hasil.
 
 
-##### Silahkan lihat cv saya, anda bisa mengakses di sini 👉
+##### Silahkan lihat cv saya, anda bisa mengakses di sini 👇😉
 [CV](https://github.com/ulanndari/portofolio-ulandari/blob/main/CV-pdf/cv%20ulandari.pdf?raw=true)
 terimakasih
