@@ -7,7 +7,6 @@ I graduated with a Bachelor's degree in Management from Muhammadiyah University 
 ##### 🌟Saya adalah lulusan perguruan tinggi yang aktif, mandiri, dan berorientasi pada pengembangan diri.
 Setelah lulus, saya mendirikan UMKM, mengajar les privat, dan juga menjadi pengajar mengaji. Di tengah aktivitas tersebut, saya terus mencari peluang untuk bertumbuh, baik secara profesional maupun spiritual.
 Kini, saya mendapatkan kesempatan emas untuk mengikuti bootcamp teknologi yang mempelajari dasar-dasar koding, pemrograman, analisis data, serta berbagai keterampilan digital lainnya yang sangat relevan dengan perkembangan zaman. Semangat saya sebagai pemula sangat besar, dan saya terus berusaha belajar dengan sungguh-sungguh, percaya bahwa setiap usaha yang disertai doa akan diberi kemudahan oleh Allah SWT.
-Hal yang lebih membanggakan, saya terpilih sebagai salah satu anggota Scale AI, di mana saya juga mendapat kesempatan belajar bahasa Jerman, sebuah pengalaman baru yang memperluas wawasan global saya.
 
 🎯 Fokus dan Keahlian
 Pengembangan Diri & Pendidikan
